@@ -1,1 +1,1 @@
-# Semesterarbeit-Aufgabenteil2
+# Semesterarbeit-Aufgabenteil 2
